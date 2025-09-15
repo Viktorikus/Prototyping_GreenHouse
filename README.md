@@ -1,2 +1,2 @@
 Berikut adalah dokumentasi berupa video
-https://drive.google.com/file/d/1Dzaw7S1FYXZrbWJYAdVo31RZQgJDAK4g/view?usp=drive_link
+https://drive.google.com/drive/folders/1Dl6SxhAx3sSwLdUCKaZGiORDI8ZgCHGJ?usp=drive_link
